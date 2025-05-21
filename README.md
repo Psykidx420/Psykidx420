@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Stake Platform
 - 📫 How to reach me : rishabrathore0@gmail.com
 - 😄 Pronouns: BOB
-- ⚡ Fun fact: Im try hard as 
+- ⚡ Fun fact: Im try hard asf
 
 <!---
 Psykidx420/Psykidx420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
